@@ -7,7 +7,3 @@
   <br>prone to being clingy or hating u :33
   <br><br>draw in my <a href="https://monamour.straw.page/">strawpage</a> i love doodles Thank You</p>
 </div>
-
-<div align="right">
-![](https://komarev.com/ghpvc/?username=IIllIIllIIllII&label=peekers!!!1)
-</div>
