@@ -6,4 +6,5 @@
   <br>the rumrs r true ....   i 'mn a douchebag.. An assholev Even .
   <br>prone to being clingy or hating u :33
   <br><br>draw in my <a href="https://monamour.straw.page/">strawpage</a> i love doodles Thank You</p>
+  ![P](https://komarev.com/ghpvc/?username=IIllIIllIIllII)
 </div>
