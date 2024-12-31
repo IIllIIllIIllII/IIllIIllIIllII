@@ -1,16 +1,13 @@
-## Hi there 👋
+<div align="center">
+  <img src="https://www.fightersgeneration.com/np5/blaz-cs/sprites/2/3/hazama-hat.gif">
+  <h1><i>fragile like a bomb, not a flower.</i></h1>
+  <p>they call me &nbsp;<b><i>igor</i></b> . &nbsp;&nbsp;it / he
+  <br>im afk 90% of the time , please whisp if you want to int
+  <br>the rumrs r true ....   i 'mn a douchebag.. An assholev Even .
+  <br>prone to being clingy or hating u :33
+  <br><br>draw in my <a href="https://monamour.straw.page/">strawpage</a> i love doodles Thank You</p>
+</div>
 
-<!--
-**IIllIIllIIllII/IIllIIllIIllII** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="right">
+![](https://komarev.com/ghpvc/?username=IIllIIllIIllII&label=peekers!!!1)
+</div>
