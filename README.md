@@ -1,5 +1,5 @@
 <div align="center">
-  <h1><i>no me mires con esos ojos.</i></h1>
+  <h1><i>money is the symbol for love.</i></h1>
   <p>they call me &nbsp;<b><i>igor</i></b> . &nbsp;&nbsp;it / its
   <br>tenna, xeno kin
   <br>im afk 90% of the time , please whisp if you want to int
