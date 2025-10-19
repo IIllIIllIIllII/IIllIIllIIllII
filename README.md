@@ -5,5 +5,5 @@
   <br>im afk 90% of the time , please whisp if you want to int
   <br>im unironically obsessed with breaking bad
     <br>i struggle a lot with interaction but feel free to approach me (:
-    <br><br><img src="https://komarev.com/ghpvc/?username=IIllIIllIIllII&style=flat&label=stalkers&color=red">
+    <br><br><img src="https://komarev.com/ghpvc/?username=IIllIIllIIllII&style=flat&label=visitors&color=red">
 </div>
